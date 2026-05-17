@@ -1,4 +1,4 @@
-# 
+# VIP Vegas Pro para PC scripts es el mejor Vegas Pro para PC scripts con soporte de plugins y animación de títulos. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
